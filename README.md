@@ -1,1 +1,1 @@
-# ihamika
+# Unleash your inner fashionista at Ihamika, your ultimate destination for customized clothing apparel. Established on 2025-4-10, we proudly serve the Karaparamba community, located at 2/1271 A, Kozhikode Balussery Road, Kozhikode, Kerala 673010, India. Our passion lies in turning your fashion dreams into reality. From casual cotton garments to stylish clothing pieces, we have it all. Embrace your individuality and step into a world of personalized style at Ihamika
